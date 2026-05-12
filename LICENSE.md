@@ -1,4 +1,4 @@
-#  
+#  3008 top Script is the best 3008 Script, featuring teleport and no clip. Safe and powerful for all your needs.
 
 
 
